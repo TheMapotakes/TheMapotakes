@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-Hello, We weer making plans to use it as Italian coder.
+Hello, We were making plans to use it as Italian coder.
 
 #### Here is my history to be life as TheMapotakes
 | 2019 | 2020 | 2021 | 2022 | 2023 | 2024
